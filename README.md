@@ -10,4 +10,4 @@
 
 *头像由摄影师 [Ludemeula Fernandes](https://unsplash.com/photos/9UUoGaaHtNE) 拍摄。*
 
-*Created in Luoyang Normal University with Love♥.*
+*ℂ𝕣𝕖𝕒𝕥𝕖𝕕 𝕚𝕟 𝕃𝕦𝕠𝕪𝕒𝕟𝕘 ℕ𝕠𝕣𝕞𝕒𝕝 𝕌𝕟𝕚𝕧𝕖𝕣𝕤𝕚𝕥𝕪 𝕨𝕚𝕥𝕙 𝕃𝕠𝕧𝕖♥.*
