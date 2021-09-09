@@ -6,7 +6,7 @@
 
 感谢 Follow ！
 
-**为了隐私起见，并不推荐你 Follow 这个账号。** 不过如果你觉得无所谓，那么请君自便 =w=
+**如果你是为了洛阳师范学院教职人员或学生，出于隐私起见，并不推荐你 Follow 这个账号。** 不过如果你觉得无所谓，那么请君自便 =w=
 
 *头像由摄影师 [Ludemeula Fernandes](https://unsplash.com/photos/9UUoGaaHtNE) 拍摄。*
 
